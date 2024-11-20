@@ -1,2 +1,2 @@
-Hii, i'm priya
-i'm studying engineering
+Hii, i'm Priya.
+I'm studying engineering.

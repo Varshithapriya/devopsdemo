@@ -1,2 +1,2 @@
 Hii, i'm Priya.
-I'm studying engineering.
+I'm studying engineering
